@@ -1,6 +1,6 @@
 Date:
 Gallery:Sumukha, Bangalore
-curator:
+curator:Meena Vari
 
 
 “There are those who say that when civilization progresses a bit further, transportation facilities will move into the skies and under the ground, and that our streets will again be quiet, but I know perfectly well that when that day comes some new device for torturing the old will be invented.”

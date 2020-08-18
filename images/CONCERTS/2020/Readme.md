@@ -1,1 +1,1 @@
-Concerts in 2020
+Classes and Workshops in 2020

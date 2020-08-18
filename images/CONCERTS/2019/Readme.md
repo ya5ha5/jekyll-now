@@ -1,1 +1,1 @@
-Concerts in 2019
+Classes and workshops in 2019

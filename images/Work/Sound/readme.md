@@ -8,7 +8,7 @@ I hear Her Master’s voice in three dimensions(2020)
 Emergency Kiss(2019)
 *Punk*
 
-Memoirs of my nervous toick(2018)
+Memoirs of my nervous tick(2018)
 *Sculpture*
 *robitics*
 
